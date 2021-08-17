@@ -15,7 +15,7 @@ All Apes have at least 2 traits (background and fur/skin). Listed in order of ra
 
 :pray: coffee money to DhPr5jch2CgJpbVxLKhaQHZt4uJ1GVVhpFQ9Wd9WQmYN and support degen ape community development
 
-feature requests and community contrib welcome. DM empires on discord or Twitter: https://twitter.com/empires
+feature requests and community contrib welcome. DM empires on discord or Twitter: https://twitter.com/0xempires
 
 # Looking For A Specific Trait?
 
